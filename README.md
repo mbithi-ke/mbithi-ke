@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @xjt923
+- 👋 Hi, I’m @mbithi-ke
 - 🌱 I’m currently learning and creating some stuff ...
 
 
